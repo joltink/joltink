@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/6pdc06.gif)
 <p align="center">
-hihi! turbo or emmet ' 18
+hihi! turbo or emmet . 18
 <p align="center">
 c + h is encouraged, but if you want my attention its best to whisper me
 <p align="center">
