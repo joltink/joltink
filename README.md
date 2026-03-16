@@ -1,16 +1,11 @@
-## Hi there 👋
-
-<!--
-**joltink/joltink** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://files.catbox.moe/6pdc06.gif)
+<p align="center">
+hihi! turbo or emmet ' 18
+<p align="center">
+c + h is encouraged, but if you want my attention its best to whisper me
+<p align="center">
+i remake / change my ponies a lot because i tend to be very indecisive, but my github will always be linked just in case it gets confusing
+<p align="center">
+im talkative so dont be scared to int with me if youre interested
+<p align="center">
+leave a doodle on my strawpage!!
